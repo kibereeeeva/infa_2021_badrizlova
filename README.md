@@ -1,3 +1,3 @@
-# infa_2021_badrizlova
+# infa_2021_
 
 
